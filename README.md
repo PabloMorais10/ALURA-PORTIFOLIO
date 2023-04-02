@@ -14,7 +14,7 @@
 
 ## Feito por:
 
-### Joana Santos
+### Pablo Morais
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: (https://www.linkedin.com/in/pablo-morais-2826b7192/)
 
